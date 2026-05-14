@@ -1,4 +1,4 @@
-#  
+#  oil empire stealth Script is the best oil empire Script, featuring fly and one-hit kill. Safe and powerful for all your needs.
 
 
 
